@@ -76,7 +76,7 @@ of systematic practices beneficial to them. Having to always split off time and 
 ideal devotions is costly, and misanthropy sees these costs as unnecessary and destructive to their aims. These misanthropes 
 come from all walks of life, including royalty that demands tribute, bureaucrats that aspire for law and order, and others that 
 did not receive what they expected, even though they followed through on the system guidelines for their objectives. An aversion 
-to illogical ways, metastasized into placing responsibility of fault onto many members of humanity. 
+to illogical ways, metastasized into indiscriminately placing responsibility of fault onto many members of humanity. 
 
 Misanthropy as a practice nurtured in open-ended free environments. This is the polar opposite to the kind spurred from the 
 lack of absolutism. These misanthropes will appear meek and somber in their surroundings, typically diversified in cultural and 
