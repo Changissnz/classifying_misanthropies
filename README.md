@@ -81,7 +81,7 @@ to illogical ways, metastasized into indiscriminately placing responsibility of 
 Misanthropy as a practice nurtured in open-ended free environments. This is the polar opposite to the kind spurred from the 
 lack of absolutism. These misanthropes will appear meek and somber in their surroundings, typically diversified in cultural and 
 racial backgrounds and under left-leaning agenda. These misanthropes tend to play along with scripts, acting as open and carefree 
-as the next person to them, and might also be more loose in principle than the kinds of misanthropy sourced from determinism. 
+as the person next to them, and might also be more loose in principle than the kinds of misanthropy sourced from determinism. 
 
 Many misanthropes will, in fact, maintain cooperation in their systems of operation, all the while becoming tone-deaf to pleas 
 from the other side. Many misanthropes will choose to limit interaction with other people for "their peace of mind", and these 
