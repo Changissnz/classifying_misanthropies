@@ -5,7 +5,7 @@ This article is, in no way, being written by artificial intelligence. So do not 
 intelligence becoming misanthropic and then proceeding to mass shootings of people. These are just a few items, 
 worthy of mention, on how misanthropy starts. It must be assumed that misanthropy is not an innate quality, for 
 it is a potent and concentrated force that could not have been forged into any human being upon their inception 
-into this world. This is a theory, neverthless put forth as a matter of fact. The madness of proving metaphysical 
+into this world. This is a theory, nevertheless put forth as a matter of fact. The madness of proving metaphysical 
 underpinnings must already gear some people to choose to listen to some things and to turn blind eyes to others. 
 
 Misanthropy and helplessness. Those that have experienced situations where they could not seek adequate help 
