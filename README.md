@@ -53,8 +53,8 @@ portion of misanthropy can be traced back to practices and conducts by elites. M
 behavior that the misanthrope presents. Misanthropes of this variety could act foolish and nonsensical as an indirect 
 insult to the seriousness of issues presented by the masses. However, this variety of misanthropy can also act sanctimonious, 
 with a strong touch of stoicism, chosen as a foil to the masses conceptualized as nonsensical idiots. There is a wide 
-spectrum of attitudes in misanthropy of the masses. One aspect, which may be difficult to detect, is the elitism that 
-is more from mentality than from status or wealth. 
+spectrum of attitudes in misanthropy of the masses. One aspect of these misanthropes, which may be difficult to detect, is 
+their elitism that is more from mentality than from status or wealth. 
 
 Misanthropy and determinism. Ideas that some human beings are where they are at due to overarching concepts such as 
 structural inequality or perhaps something more specific and personal, such as conspiracy, could lead the way to misanthropy 
