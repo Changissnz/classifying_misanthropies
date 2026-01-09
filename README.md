@@ -73,7 +73,7 @@ fallacious, truism, patronizing, and useless.
 
 Misanthropy from the lack of absolutism. Misanthropes, as reactionaries to the lack of absolutism, also are greatly appreciative 
 of systematic practices beneficial to them. Having to always split off time and resources and allegiance to more than just their 
-ideal devotions are costly, and misanthropy sees these costs as unnecessary and destructive to their aims. These misanthropes 
+ideal devotions is costly, and misanthropy sees these costs as unnecessary and destructive to their aims. These misanthropes 
 come from all walks of life, including royalty that demands tribute, bureaucrats that aspire for law and order, and others that 
 did not receive what they expected, even though they followed through on the system guidelines for their objectives. An aversion 
 to illogical ways, metastacized into placing responsibility of fault onto many members of humanity. 
