@@ -22,7 +22,7 @@ of control by the perpetrating organization that chose not to properly help at t
 based on reactionary mechanisms to helplessness will also tend towards privatization of one form or another. These 
 statements so far made on this kind of misanthropy are difficult to argue against, yet provide so little definitive 
 detail on how misanthropes may conduct themselves. Yet, it is foolish to blanket the term "misanthrope" on a person, 
-so long as they remain connected to other sources constituting stimuli to them, other humans included. 
+so long as they remain connected to other sources emanating stimuli to them, other humans included. 
 
 Misanthropy and betrayal. This correlation is similar to that of helplessness, and may even entirely fall under 
 the category of helplessness, but the kinds of betrayals positive in action are different from that of helplessness. 
